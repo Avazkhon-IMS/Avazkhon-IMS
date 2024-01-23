@@ -6,7 +6,7 @@
 
 💞️ I’m eager to collaborate with fellow researchers, academics, and anyone passionate about materials science and computational chemistry. Whether it's exploring new materials, refining computational methods, or discussing theoretical concepts, I believe in the power of collaboration to accelerate discovery.
 
-📫 How to reach me: Feel free to connect with me via email at avazkhon@ims.uz or follow me on LinkedIn for updates on my research and collaborations. Your ideas, questions, and proposals for joint projects are always welcome!
+📫 How to reach me: Feel free to connect with me via email at avazkhon1996@gmail.com or follow me on LinkedIn for updates on my research and collaborations. Your ideas, questions, and proposals for joint projects are always welcome!
 
 😄 Pronouns: He/Him
 
